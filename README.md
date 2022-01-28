@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Joseph @qw3r1nt1n3
+- 👀 I’m interested in learning how to code
+- 🌱 I’m currently learning everything through The Odin Project
+- 💞️ I’m looking to collaborate on anything and everything if i have the time...
+- 📫 How to reach me: (913) 326-6781 or joseph.aviles.dalton@gmail.com
